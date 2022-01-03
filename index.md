@@ -1,2 +1,2 @@
 # Memoratus
-## Test
+Contact info: [Linktree](https://linktr.ee/KlasO)
