@@ -1,2 +1,2 @@
 # Memoratus
-Contact info: [Linktree](https://linktr.ee/KlasO)
+Contact info: [Memoratus AB](https://memoratus.org/contact)
